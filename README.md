@@ -1,0 +1,2 @@
+# darkdiscordtheme
+Credits to codedotspectra
